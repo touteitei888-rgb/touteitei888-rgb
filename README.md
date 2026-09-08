@@ -1,4 +1,4 @@
-# Hi, I'm Tangting 👋
+# Hi, I'm Tang 👋
 
 UI / AI Product Designer · Vibe Coding Creator
 
